@@ -8,6 +8,6 @@ A proposal of building an ideal society
 #### 第三章    灵魂世界 
 		紫外  红外  光学眼镜  探索眼所不见的世界
 		意识与躯体   魂的容器
-#### 第四章    打破金钱的牢笼（Break the golden cage）
+#### 第四章    打破金钱的牢笼（Break the Golden Cage）
 #### 第五章    共产主义
 #### 第六章    星际文明
